@@ -18,3 +18,8 @@ TODAY I DID blahhh blahhh blaah
 
 
  
+EMAIL check
+
+docs check from google drivee
+
+read doca nd sheet
